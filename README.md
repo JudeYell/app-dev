@@ -12,4 +12,4 @@
 **My KPop Bias**
 1. Chaewon ONLY
 
-![Alt Text](C:\Users\Marymel Bautista\Pictures\New folder\chaewon.png)
+![chaewon](https://github.com/JudeYell/app-dev/assets/152348778/1c0979ce-5fa0-4908-87cc-9cf0a82b7557)
