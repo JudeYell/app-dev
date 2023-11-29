@@ -12,4 +12,4 @@
 **My KPop Bias**
 1. Chaewon ONLY
 
-![alt text](chaewon.jpg)
+[title]([https://www.example.com](https://kpopping.com/kpics/221023-LE-SSERAFIM-Chaewon-ANTIFRAGILE-at-Inkigayo)https://kpopping.com/kpics/221023-LE-SSERAFIM-Chaewon-ANTIFRAGILE-at-Inkigayo)
